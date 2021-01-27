@@ -1,0 +1,1 @@
+look at and comprehend the meaning of (written or printed matter) by interpreting the characters or symbols of which it is composed.Hekwjew
